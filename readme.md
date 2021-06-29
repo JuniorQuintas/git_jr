@@ -1,0 +1,1 @@
+Sinceramente, estou achando difícil aprender git. Mas acho interessante a forma que o gama está nos trenando. Fazendo valer muito a interação dos participantes. Coisa que antes eu não fazia.
